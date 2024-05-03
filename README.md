@@ -1,3 +1,7 @@
+jangan lupa kunjungi web nya wafariki yang sudah membantu terima kasih
+
+
+
 # WebBucin-V6
 Web Bucin V6 yang saya buat khusus buat orang tercinta &amp; tersayang.
 repo ini cocok buat klean yang ingin merayakan anniversary hubungan klean / bisa juga dipake buat merayakan ulang tahun kerabat / kolega klean wkkwkkwkw.
